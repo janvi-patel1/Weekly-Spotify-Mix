@@ -1,1 +1,1 @@
-# Spotify-Saved-Weekly-Playlist
+# Weekly-Spotify-Mix
